@@ -26,3 +26,24 @@ The management has noticed an increasing number of patients being discharged aga
 ## Data Viz:
 ![Github_3_2025-05-19 115531](https://github.com/user-attachments/assets/14bcb514-e4ba-41a0-b7a2-ddbdf88d6ab7)
 
+
+## Recommendation
+1. The top DAMA reason, being Financial constraint should be addressed with targeted financial support systems by partnering with Government agencies, NGOs and Foreign health schemes.
+
+
+2. More resources should be allocated to the prevalent Chronic illness being CKD (Chronic Kidney disease) .
+
+
+3. Best practices should be implemented for best performing doctors to improve overall performance.
+
+
+### Connect with Me:
+LinkedIn;
+https://www.linkedin.com/in/andrew-yakubu-64119a27b
+
+Email;
+yakubuandrew17@gmail.com
+
+whatsapp;
++2349031965446
+
